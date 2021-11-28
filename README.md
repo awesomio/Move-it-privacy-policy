@@ -60,4 +60,4 @@ This policy is effective as of 2021-11-28
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at https://twitter.com/Awesom1o.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at aw3s0m.10@gmail.com.
